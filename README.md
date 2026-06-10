@@ -1,1 +1,1 @@
-# evanaucoin-eaucoin_SQ_W4
+# eaucoin_SQ_W4
